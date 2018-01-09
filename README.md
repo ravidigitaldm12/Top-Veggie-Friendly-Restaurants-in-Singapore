@@ -1,0 +1,2 @@
+# Top-Veggie-Friendly-Restaurants-in-Singapore
+Find one of the best cooking recipes on Top Veggie-Friendly Restaurants in Singapore, here you can get world’s best healthy food recipes. Alaturka, While in Kampong Glam, Toast Box, Tino’s Pizza Café, RedDot BrewHouse, Fifth Season Tangra Chinese Restaurant, and Tapas Club this are one of the most famous restaurants in Singapore served most delicious and mouthwatering Veggie food dish.
